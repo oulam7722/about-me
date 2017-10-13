@@ -24,6 +24,5 @@ My name is oula mahfouz i go to hstat and my email is oulam7722@hstat.org
 * 3 siblings
     * omar
     * amer
-    * alya
 * i wear glasses
 * i am 16
